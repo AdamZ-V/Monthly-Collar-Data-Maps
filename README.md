@@ -1,1 +1,0 @@
-# Monthly-Collar-Data-Maps
